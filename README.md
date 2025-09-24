@@ -1,2 +1,3 @@
 # Creative-showcase
-To show case my photography skills and creative ideas
+To showcase my photography skills and creative ideas
+The story and intimacy of every photo 
